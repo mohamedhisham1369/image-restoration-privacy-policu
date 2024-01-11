@@ -28,7 +28,7 @@ This privacy policy may be updated periodically. Users will be notified of any s
 
 ### 7. Contact Information:
 
-Users can contact us regarding privacy concerns or requests for data deletion at [info@image-restoration-app.com](mailto:info@image-restoration-app.com).
+Users can contact us regarding privacy concerns or requests for data deletion at [mohamedhisham1369@gmail.com]).
 
 ## Terms and Conditions
 
